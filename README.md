@@ -10,4 +10,4 @@
 
 【My】 General information
 
-If you have any questions, please contact technical support email：guoshiba30743397@163.com，Thank you for your support.
+If you have any questions, please contact technical support email：mgou80880@sina.com，Thank you for your support.
